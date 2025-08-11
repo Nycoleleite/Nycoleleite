@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 💻 Estou aprendendo a fazer um site
 - 💟 Meu nome Nycole
 - 1B
-
+![sititch](nor.com/pt-BR/view/eating-candies-stitch-lilo-and-stitch-munching-candies-eating-sweets-gif-27247199)
